@@ -152,11 +152,7 @@
 - 🎵 抖音 / Douyin：[MokeLMa · 炽×寂×幻](https://v.douyin.com/jlQAEe47xu0/)
 - 💻 GitHub：[MOKEAIGC/MOKEAIGC-work-V09](https://github.com/MOKEAIGC/MOKEAIGC-work-V09)
 
----
 
-<p align="center">
-  <sub>万古长夜，我自为灯 · 018 / 100</sub><br>
-  <sub>In the long night of ages, I am my own lamp.</sub>
 </p>
 
 <img width="2944" height="1648" alt="moke5890_A_cinematic_photograph_Arri_65mm_camera_Cooke_anamor_956328eb-ceab-40da-b8e8-42418bcad136_2" src="https://github.com/user-attachments/assets/1b4cbd34-1d6a-415c-ae48-b51835309a7c" />
